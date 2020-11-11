@@ -1,0 +1,1 @@
+take bowl ,put water,break maggie,wait 2 minute,its ready

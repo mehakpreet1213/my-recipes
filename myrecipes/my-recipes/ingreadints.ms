@@ -1,0 +1,1 @@
+bowl,water,1 maggie pack,take vegetabels if you want
